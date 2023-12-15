@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @jasminejackson1223
+- 👀 I’m interested in ... patterns, data, and numbers
+- 🌱 I’m a Pattern-Recognition Specialist/ Data Analyst
+- 💞️ I’m looking to share my thoughts and collaborate with others in the process
+- I created this project as a case study.... Check it out.
+- https://www.loom.com/share/126ef54fa603437e8d0b538641a2b4c7?sid=c462268f-b0c0-4382-a500-f7704c6b9f4c
+- 
